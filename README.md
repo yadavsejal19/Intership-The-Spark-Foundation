@@ -1,1 +1,1 @@
-# Intership-The-Spark-Foundation
+# Internship-The-Spark-Foundation
